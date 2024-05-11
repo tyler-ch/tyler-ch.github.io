@@ -1,1 +1,4 @@
-# tyler-ch.github.io
+# Nanotechnology Engineer
+
+### Education
+University of Waterloo
